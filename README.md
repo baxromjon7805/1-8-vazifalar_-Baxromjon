@@ -1,0 +1,1 @@
+# 1-8-vazifalar_-Baxromjon
